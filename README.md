@@ -1,1 +1,1 @@
-# INFOTEIX
+# INFOTRIX
